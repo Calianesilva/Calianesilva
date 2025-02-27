@@ -6,4 +6,4 @@ Olá, sou Caliane silva
 - 🐾 Amo animais ❣
 - 💕 Católica
 - 💍
-- 🎗 Pronomes: Ela/Dela
+  
